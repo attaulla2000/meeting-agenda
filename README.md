@@ -1,7 +1,7 @@
 # Chapter Orientation Meeting Agenda
-Meeting Agenda
+US India Policy Institute 
 
-<h1> US India Policy Institute </h1>
+
 <h2> Chapter Orientation Home </h2>
 <h2>   Agenda Items </h2>
 <h3>      0. Introductions </h3>
