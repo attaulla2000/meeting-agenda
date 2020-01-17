@@ -7,7 +7,7 @@ US India Policy Institute
 <h3>      1. USIPI's Institutional Setup  </h3>
 <h3>      2. Domain of Activity  </h3>
 <h3>      3. Collaborations </h3>
-<h3>      4. USIPI History & Past Achievements </h3>
+<h3>      4. History & Past Achievements </h3>
 <h3>      5. Current and Future Projects </h3>
 <h3>      6. Chapter and Grassroots network </h3> 
 <h3>      7. Who is an Ideal Volunteer/Ambassador? </h3>
