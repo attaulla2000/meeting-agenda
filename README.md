@@ -14,6 +14,6 @@ US India Policy Institute
 <h3>      8. What can I do for USIPI?  </h3>
 <h3>      9. Marketing Model  </h3>
 <h3>      10. Revenue Model </h3>
-<h3>      11. Roadmap for 2020 </h3>
+<h3>      11. Chapter Roadmap for 2020 </h3>
 <h3>      12. Questions and Open Discussion </h3>
 
