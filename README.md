@@ -12,8 +12,8 @@ US India Policy Institute
 <h3>      6. Chapter and Grassroots network </h3> 
 <h3>      7. Who is an Ideal Volunteer/Ambassador? </h3>
 <h3>      8. What can I do for USIPI?  </h3>
-<h3>      9. Marketing model  </h3>
-<h3>      10. Revenue model </h3>
-<h3>      11. Roadmap for 2020 Roadmap </h3>
+<h3>      9. Marketing Model  </h3>
+<h3>      10. Revenue Model </h3>
+<h3>      11. Roadmap for 2020 </h3>
 <h3>      12. Questions and Open Discussion </h3>
 
