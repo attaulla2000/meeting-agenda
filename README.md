@@ -18,4 +18,3 @@ US India Policy Institute
 <h3>      12. Questions and Open Discussion </h3>
 
 <h1>      Heading 1  </h1>      
-##      Heading 2  
