@@ -17,4 +17,3 @@ US India Policy Institute
 <h3>      11. Roadmap for 2020 Roadmap </h3>
 <h3>      12. Questions and Open Discussion </h3>
 
-<h1>      Heading 1  </h1>      
