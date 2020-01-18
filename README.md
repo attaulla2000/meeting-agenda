@@ -138,16 +138,20 @@ Thanks to our dedicated volunteers and scholars, USIPI’s impact has far outpac
 - Conducted a study in Karnataka state analyzing reasons for voter application rejections that found 54,000 rejections during the year on mere suspicion that applicants may not be Indian citizens. 
 - Thanks to the subsequent outreach to policymakers, a review was recommended for all 54,000 applications rejected, which resulted in restoring the majority of those applications.
 
-Briefing to the Chief Election Commission, New Delhi
-![Image](https://files.constantcontact.com/8b029051201/ffb31ea7-4197-4ea0-8dda-e726f79471b4.jpg)
 
-Round-table conference: ![Image](https://files.constantcontact.com/8b029051201/311d883d-b285-4c20-9426-e965822301d0.jpg)
+Prime Minister Manmohan Singh establsihed the Sachar Committee based on a recommendation given to him by Dr. Abusaleh Shariff ![Image](https://files.constantcontact.com/8b029051201/46dddb91-1557-4d26-a8fa-43292f1d446b.jpg)
 
-Telangana Sudhir Committee Report: ![Image](https://files.constantcontact.com/8b029051201/2b6f5faf-fd12-42cc-90ec-702d792d6a16.jpg)
+Round-table conference to discuss publication of the book "Institutionalizing Constitutional Rights" by the Oxford University Press ![Image](https://files.constantcontact.com/8b029051201/311d883d-b285-4c20-9426-e965822301d0.jpg)
 
-Briefing to Vice President of India: ![Image](https://files.constantcontact.com/8b029051201/9479aea5-0c0f-4d4f-9a5a-fcd7f057cd85.jpg)
+Briefing to Vice President of India ![Image](https://files.constantcontact.com/8b029051201/9479aea5-0c0f-4d4f-9a5a-fcd7f057cd85.jpg)
 
-Karnataka Equal Opportunity Draft: ![Image](https://files.constantcontact.com/8b029051201/f3edbe30-d27b-4ba9-8cb4-fb0c382ffe92.jpg)
+Telangana Sudhir Committee Report ![Image](https://files.constantcontact.com/8b029051201/2b6f5faf-fd12-42cc-90ec-702d792d6a16.jpg)
+
+Karnataka Equal Opportunity Draft ![Image](https://files.constantcontact.com/8b029051201/f3edbe30-d27b-4ba9-8cb4-fb0c382ffe92.jpg)
+
+Briefing to the Chief Election Commission, New Delhi ![Image](https://files.constantcontact.com/8b029051201/ffb31ea7-4197-4ea0-8dda-e726f79471b4.jpg)
+
+
 
 <p> . </p>
 <p> . </p>
