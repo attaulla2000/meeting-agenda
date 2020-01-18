@@ -18,10 +18,13 @@
 <h3>      12. Questions and Open Discussion </h3>
 
 
-#### --------------------------------------------------  
-####             Institutional Setup 
-#### --------------------------------------------------
+#### ------------------------ Institutional Setup ----------------------
 
-USIPI is a 501c3 non-profit organization registered in Washington, DC. We have an office in a shared space building. 
+- USIPI is a 501c3 non-profit organization registered in Washington, DC. 
+- We have an office in a shared space building. 
+- USIPI has six board members 
+  1. Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan, Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui
 
-#### ------------------------- Domain of Activity ----------------------------------------------------------------------------- 
+#### ------------------------- Domain of Activity ----------------------
+
+
