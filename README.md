@@ -175,10 +175,25 @@ Our topics of current focus include:
 -	Workforce diversity and the impact of multinational corporations on diversity
 -	Building national and state level social and economic data bases for policy analysis
 
-#### Projects
+
+
+#### Current Projects
 1.  Capacity Building 
 2.  Citizenship and NRC 
 3.  Digital Centers 
+
+
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+
+
 
 #### ------------------------- 6. Chapter and Grassroots network ----------------------
 
@@ -197,6 +212,25 @@ USIPI has currently has ambassadors in the following states
 10.  California
 
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+
 #### ------------------------- 7. Who is an Ideal Volunteer/Ambassador? ----------------------
 
 1.  Good Understanding of USIPI
@@ -209,6 +243,24 @@ USIPI has currently has ambassadors in the following states
 8.  Avaliable
 9.  Innovators/Dreamers
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
 
 #### ------------------------- 8. What can I do for USIPI? ----------------------
 
@@ -221,6 +273,25 @@ USIPI has currently has ambassadors in the following states
 7.  Lead a Project or Program
 8.  Dreamers/Innovators
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+
 #### ------------------------- 9. Marketing Model ----------------------
 
 USIPI mostly benefits from individual connections and their social network for its marketing. It also uses these mediums for marketing and communications.
@@ -232,6 +303,24 @@ USIPI mostly benefits from individual connections and their social network for i
 5.  Twitter
 6.  LinkedIn
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
 
 #### ------------------------- 10. Revenue Model ----------------------
 
@@ -247,11 +336,85 @@ Other sources:
 - Masajids
 - Other relief and advocacy organizations
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
 
 #### ------------------------- 11. Chapter Roadmap for 2020 ----------------------
 
 
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+
+#### ------------------------- 12. Open Discussions and Questions ----------------------
 
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
 
