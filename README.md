@@ -53,7 +53,7 @@
 - Non-partisan: USIPI works for all people regardless of race, ethnicity, religion, or economic status. 
 
 
-#### ------------------------- 2. Domain of Activity ----------------------
+#### ------------------------- 2. Mission and Domain of Activity ----------------------
 - United States and India are two of the world’s largest and most influential democracies sharing a dynamic, multicultural population in a rapidly changing world. 
 - USIPI supports the common commitment between the United States and India to equality, freedom, rights, and equal access to resources and developmental opportunities. 
 - USIPI envisions all people to have equal <strong> freedom</strong>  and equal access to <strong>opportunities</strong>. 
@@ -107,16 +107,47 @@ To further USIPI's mission, other organizations and institutes have extended sup
 <p> . </p>
 <p> . </p>
 
-#### ------------------------- 4. History and Past Achievements ----------------------
+#### ------------------------- 4. History and Impact ----------------------
+- 
 - Institutional Building is a cumulative process, leveraging what already exists in the society and building on top of it. 
 - Indian Muslims in America are the best ambassadors for what is good in India/Muslim, preserving and pomoting best of both worlds profesionally, in the community and at homes. 
 - Indian Muslims are pioneers in establihsing masajids, Relief organizations and advocacy groups.
-- In 2011, a similar group of pioneers came together to establish a think tank in Washington, DC. 
+- Sachar Committe report was an eye-opener that documented the relative economic development of India's socio-religious communities for the first time since independence. The report found that Muslims have fallen behind almost all indicators of economic development. 
+- Although the government in principle accepted 72 of the 76 recommednations of the Sachar Committee report and setup a Ministry of Minority Affairs to oversee several entitlement programs; there was a strong need for the community to monitor the progress, engage in its own development and to advocate policy options for empowerment.
+- In 2011, a small group of pioneers came together to establish a think tank in Washington, DC. 
 - Recruited some of the best scholars and built a large newtork of patrons and advisors
 
+<p> Our Network of Patrons, Scholars and Advisors </p>
 ![Image](https://files.constantcontact.com/8b029051201/72161c8b-2b40-44c9-93af-6835041132b2.png)
-<p> ...Network of Patrons, Scholars and Advisors </p>
 
+#### Our Impact 
+Thanks to our dedicated volunteers and scholars, USIPI’s impact has far outpaced our budget. In the past eight years we:
+
+-	Published more than 10 peer-reviewed papers, dozens of op-ed pieces, and one book on economic development issues in India
+-	Conducted a six-year review of the implementation of the Sachar Committee Report, which found ongoing gaps in diversity in public spaces, and minority benefit from mainstream institutions, and identified recommendations for addressing these ongoing issues. 
+-	Provided research and analysis that resulted in a 142% increase in the Minority Affairs Budget of India. 
+- Studied EOC in USA and EHRC in UK to proposed a model for establishing an Equal Opportunity Commission for India and its states.
+- Provided empirical support to two major commissions of enquiry (Kundu Committee and Sudhir Committee)
+- Developed first of its kind - District Development and Diversity Index (DDDIx) and provided ranking for most of the districts in India
+- Conducted a 5-state survey of Muslim Households, recognizing the community is least connected with institutions
+-	Provided empirical data and proposed policy initiatives to empower marginalized communities in Telangana and Karnataka that resulted in the opening of new residential minority schools and larger budgets for economic development initiatives targeting minority communities. 
+-	Provided data on triple talaq that was used as evidence before the Supreme Court in India.
+-	Partnered with the Digital Empowerment Foundation to establish three digital centers in Telangana and Rajasthan, providing access to digital services and technology, vocational training, and digital literacy training for thousands of people. 
+- Conducted a large-scale analysis of voter registration data and published results that as many as 15% of all adults in India were missing from official voter lists. Provided briefings to the independent Chief Election Commission, which directed all the State Election Offices to run voter education and enrollment campaigns. 
+- Thanks to this finding and resulting voter mobilization campaigns, an estimated 30 million missing voters have since been registered.
+- Conducted a study in Karnataka state analyzing reasons for voter application rejections that found 54,000 rejections during the year on mere suspicion that applicants may not be Indian citizens. 
+- Thanks to the subsequent outreach to policymakers, a review was recommended for all 54,000 applications rejected, which resulted in restoring the majority of those applications.
+
+Briefing to the Chief Election Commission, New Delhi
+![Image](https://files.constantcontact.com/8b029051201/ffb31ea7-4197-4ea0-8dda-e726f79471b4.jpg)
+
+Round-table conference: ![Image](https://files.constantcontact.com/8b029051201/311d883d-b285-4c20-9426-e965822301d0.jpg)
+
+Telangana Sudhir Committee Report: ![Image](https://files.constantcontact.com/8b029051201/2b6f5faf-fd12-42cc-90ec-702d792d6a16.jpg)
+
+Briefing to Vice President of India: ![Image](https://files.constantcontact.com/8b029051201/9479aea5-0c0f-4d4f-9a5a-fcd7f057cd85.jpg)
+
+Karnataka Equal Opportunity Draft: ![Image](https://files.constantcontact.com/8b029051201/f3edbe30-d27b-4ba9-8cb4-fb0c382ffe92.jpg)
 
 <p> . </p>
 <p> . </p>
