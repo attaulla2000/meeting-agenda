@@ -24,8 +24,8 @@
 - We have an office in a shared space building. 
 - USIPI has seven board members of those, four are <em>executive members</em>
  
-Board Members <em> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</em> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui
-Board members meet about once a month. Executive members meet weekly on conference calls and once a year physically. 
+<p> Board Members <em> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</em> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui </p> 
+<p> Board members meet about once a month. Executive members meet weekly on conference calls and once a year physically. </p>
 
 #### ------------------------- Domain of Activity ----------------------
 
