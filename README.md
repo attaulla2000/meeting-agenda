@@ -17,6 +17,27 @@
 <h3>      11. Chapter Roadmap for 2020 </h3>
 <h3>      12. Questions and Open Discussion </h3>
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
 
 #### ------------------------ Institutional Setup ----------------------
 
@@ -24,7 +45,7 @@
 - We have an office in a shared space building. 
 - USIPI has seven board members of these, four are <strong>executive members</strong>
  
-<p> Board Members <strong> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</strong> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui </p> 
+<p> USIPI Board Members: <strong> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</strong> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui </p> 
 <p> Board members meet about once a month. Executive members meet weekly on conference calls and once a year physically. </p>
 
 #### ------------------------- Domain of Activity ----------------------
