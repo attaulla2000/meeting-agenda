@@ -43,7 +43,7 @@
 #### Structure, People and Processes
 - USIPI is a 501c3 non-profit organization registered in Washington, DC. 
 - USIPI was established in 2011 through community support. 
-- USIPI has seven board members of these, four are <strong>executive members</strong>
+- USIPI has seven board members which includes <strong>four executive members</strong>.
 - USIPI Board Members: <strong> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</strong> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui 
 - Meetings: Board members meet about once a month over a conference call. Executive members meet weekly on conference calls and meet one or more times a year physically. 
 - Chapters: We are in the process of formalizing chapter structures in different cities and appoint Chapter Executives. 
