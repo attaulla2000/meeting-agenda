@@ -181,6 +181,10 @@ Our topics of current focus include:
 1.  Capacity Building 
 2.  Citizenship and NRC 
 3.  Digital Centers 
+    - Monitor existing and new centers
+    - Launch GOAL Mentoring Program
+    - Build Infrastructure for Research Database
+    - Back Office Projects
 
 
 <p> . </p>
@@ -358,7 +362,16 @@ Other sources:
 #### ------------------------- 11. Chapter Roadmap for 2020 ----------------------
 
 
-
+0.  Formalize the chapter
+1.  Build a Databse of Indian Muslims (WahtsApp, email, facebook) 
+2.  Promote USIPI in your Chapter
+3.  Fundraiing Events for 2020
+4.  Identify high-net worth individuals, one on one meetings
+5.  Lead a Project or Program Institutional funding 
+6.  Develop program messages and outputs 
+7.  Build a chapter in a city close to you
+ 
+ 
 <p> . </p>
 <p> . </p>
 <p> . </p>
