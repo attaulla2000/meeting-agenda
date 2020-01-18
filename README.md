@@ -56,7 +56,8 @@
 #### ------------------------- Domain of Activity ----------------------
 - USIPI envisions all people to have equal <strong> freedom</strong>  and equal access to <strong>opportunities</strong>. 
 - USIPI's mission is to remove poverty, deprivation and inequality from society as well as promote inclusive development.
-- In order to achieve these, USIPI engages in four main domains of activities. 
+- USIPI has focused on the core area of <strong>human development </strong> to guide its topics of interest and selection of issues to undertake.
+- In order to achieve its mission, USIPI engages in four main domains of activities. 
 1. <strong> Research </strong>
 <p>USIPI produces facts/data that support evidence-based policy options for inclusive development. </p>
 <p> USIPI documents these facts and publishes them for release in public doman. </p>
