@@ -180,4 +180,58 @@ Our topics of current focus include:
 2.  Citizenship and NRC 
 3.  Digital Centers 
 
+#### ------------------------- 6. Chapter and Grassroots network ----------------------
+
+USIPI recruits ambassadors in various cities to promote its activities. 
+
+USIPI has currently has ambassadors in the following states
+1.  <strong> Washington, DC area </strong>
+2.  New York / New Jersey area
+3.  Charlotte, North Carolina
+4.  Atlanta, Georgia
+5.  <strong>Dallas, TX </strong>
+6.  <strong>Houston, TX </strong>
+7.  Chicago, IL
+8.  <strong> Minnesotta </strong>
+9.  <strong> Florida </strong>
+10.  California
+
+
+#### ------------------------- 7. Who is an Ideal Volunteer/Ambassador? ----------------------
+
+#### ------------------------- 8. What can I do for USIPI? ----------------------
+
+#### ------------------------- 9. Marketing Model ----------------------
+
+USIPI mostly benefits from individual connections and their social network for its marketing. It also uses these mediums for marketing and communications.
+
+1.  Website
+2.  Email List
+3.  WhatsApp groups
+4.  Facebook
+5.  Twitter
+6.  LinkedIn
+
+
+#### ------------------------- 10. Revenue Model ----------------------
+
+USIPI is a community supported organization and relies on donations from its supporters to finance its activities.
+
+1.  Fundraising Events
+2.  Online Donations
+3.  Monthly Recurring donations
+
+Other sources:
+- Grants
+- Institutional funding 
+- Masajids
+- Other relief and advocacy organizations
+
+
+#### ------------------------- 11. Chapter Roadmap for 2020 ----------------------
+
+
+
+
+
 
