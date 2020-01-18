@@ -71,10 +71,14 @@
 4. <strong> Promote Grassroots Development Models </strong>
 <p> USIPI builds and promotes grassroots development models through its action research and collaboration with civil society, NGO's and community leaders. </p>
 
+![Image](https://files.constantcontact.com/8b029051201/06b1e25e-8414-4b64-9d67-2df60f303296.png)
+
 #### ------------------------- 3. Collaborations ----------------------
 
+USIPI actively engages with 
+1. <strong> Center for Research and Debates in Development Policies (CRDDP), New Delhi </strong>
+2. <strong> Digital Empowerment Foundation (DEF), New Delhi </strong>
+
+To further USIPI's mission, other organizations and institutes have extended support in India and US. 
+
 ![Image](https://files.constantcontact.com/8b029051201/26d8f847-453c-4650-a38f-6c480fa8fb5a.jpg)
-
-<p> USIPI collaborates with Digital Empowerment Foundation. </p>
-
-
