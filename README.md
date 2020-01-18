@@ -22,9 +22,10 @@
 
 - USIPI is a 501c3 non-profit organization registered in Washington, DC. 
 - We have an office in a shared space building. 
-- USIPI has six board members 
+- USIPI has seven board members of those, four are <em>executive members</em>
  
- Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan, Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui
+Board Members <em> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</em> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui
+Board members meet about once a month. Executive members meet weekly on conference calls and once a year physically. 
 
 #### ------------------------- Domain of Activity ----------------------
 
