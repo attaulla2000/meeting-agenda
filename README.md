@@ -73,7 +73,7 @@
 
 #### ------------------------- 3. Collaborations ----------------------
 
-![Image] (https://files.constantcontact.com/8b029051201/26d8f847-453c-4650-a38f-6c480fa8fb5a.jpg)
+![Image](https://files.constantcontact.com/8b029051201/26d8f847-453c-4650-a38f-6c480fa8fb5a.jpg)
 
 <p> USIPI collaborates with Digital Empowerment Foundation. </p>
 
