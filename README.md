@@ -106,6 +106,7 @@ To further USIPI's mission, other organizations and institutes have extended sup
 <p> . </p>
 <p> . </p>
 <p> . </p>
+
 #### ------------------------- 4. History and Past Achievements ----------------------
 - Institutional Building is a cumulative process, leveraging what already exists in the society and building on top of it. 
 - Indian Muslims in America are the best ambassadors for what is good in India/Muslim, preserving and pomoting best of both worlds profesionally, in the community and at homes. 
@@ -114,7 +115,7 @@ To further USIPI's mission, other organizations and institutes have extended sup
 - Recruited some of the best scholars and built a large newtork of patrons and advisors
 
 ![Image](https://files.constantcontact.com/8b029051201/72161c8b-2b40-44c9-93af-6835041132b2.png)
-Network of Patrons, Scholars and Advisors
+<p> ...Network of Patrons, Scholars and Advisors </p>
 
 
 <p> . </p>
