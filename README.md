@@ -44,16 +44,11 @@
 - USIPI is a 501c3 non-profit organization registered in Washington, DC. 
 - USIPI was established in 2011 through community support. 
 - USIPI has seven board members of these, four are <strong>executive members</strong>
-<p> USIPI Board Members: <strong> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</strong> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui </p> 
-
+- USIPI Board Members: <strong> Hyder Khan, Ali Rahman, Ayub Ibrahim, Attaulla Khan,</strong> Nasir Mujawar, Nazar Khan, Zafar Siddiqui and Omair Farooqui 
 - Meetings: Board members meet about once a month over a conference call. Executive members meet weekly on conference calls and meet one or more times a year physically. 
-
 - Chapters: We are in the process of formalizing chapter structures in different cities and appoint Chapter Executives. 
-
 - Staff: USIPI has one Chief Scholar, Dr.Abusaleh Shariff and several senior scholars that are our advisors and patrons. 
-
 - Network of Scholars: USIPI has a large network of patrons, scholars and advisors. Dr. Amirulla Khan, Dr. Amitabh Kundu, Prof. Abdul Shaban, Dr.Muqtedar Khan are some of our scholars/advisors.
-
 - Office Setup: We have an office space in a shared building in Washington, DC for use by our Chief Scholar, interns, visiting scholars or for meetings. 
 
 
