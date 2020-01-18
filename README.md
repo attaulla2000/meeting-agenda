@@ -139,7 +139,7 @@ Thanks to our dedicated volunteers and scholars, USIPI’s impact has far outpac
 - Thanks to the subsequent outreach to policymakers, a review was recommended for all 54,000 applications rejected, which resulted in restoring the majority of those applications.
 
 
-Prime Minister Manmohan Singh establsihed the Sachar Committee based on a recommendation given to him by Dr. Abusaleh Shariff ![Image](https://files.constantcontact.com/8b029051201/46dddb91-1557-4d26-a8fa-43292f1d446b.jpg)
+Prime Minister Manmohan Singh establsihed the Sachar Committee based on recommendation by Dr.Shariff ![Image](https://files.constantcontact.com/8b029051201/46dddb91-1557-4d26-a8fa-43292f1d446b.jpg)
 
 Round-table conference to discuss publication of the book "Institutionalizing Constitutional Rights" by the Oxford University Press ![Image](https://files.constantcontact.com/8b029051201/311d883d-b285-4c20-9426-e965822301d0.jpg)
 
