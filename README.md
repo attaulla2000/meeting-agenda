@@ -107,15 +107,41 @@ To further USIPI's mission, other organizations and institutes have extended sup
 <p> . </p>
 <p> . </p>
 #### ------------------------- 4. History and Past Achievements ----------------------
+- Institutional Building is a cumulative process, leveraging what already exists in the society and building on top of it. 
+- Indian Muslims in America are the best ambassadors for what is good in India/Muslim, preserving and pomoting best of both worlds profesionally, in the community and at homes. 
+- Indian Muslims are pioneers in establihsing masajids, Relief organizations and advocacy groups.
+- In 2011, a similar group of pioneers came together to establish a think tank in Washington, DC. 
+- Recruited some of the best scholars and built a large newtork of patrons and advisors
+
+![Image](https://files.constantcontact.com/8b029051201/72161c8b-2b40-44c9-93af-6835041132b2.png)
+Network of Patrons, Scholars and Advisors
 
 
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
+<p> . </p>
 
-<p> . </p>
-<p> . </p>
-<p> . </p>
-<p> . </p>
-<p> . </p>
-<p> . </p>
-<p> . </p>
-<p> . </p>
-<p> . </p>
+#### ------------------------- 5. Current and Future Projects ----------------------
+
+Our topics of current focus include: 
+
+-	Legal citizenship; 
+-	Equitable access to education, employment, banking and healthcare
+-	Affirmative action policies and entitlement programs
+-	Assessing the impact of public programs supporting minority communities
+-	Digital Empowerment, Skills Building and Access in remote villages and urban slums
+-	Workforce diversity and the impact of multinational corporations on diversity
+-	Building national and state level social and economic data bases for policy analysis
+
+#### Projects
+1.  Capacity Building 
+2.  Citizenship and NRC 
+3.  Digital Centers 
+
+
