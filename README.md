@@ -18,7 +18,10 @@
 <h3>      12. Questions and Open Discussion </h3>
 
 
-#### ------------------------- Institutional Setup ----------------------------------------------------------------------------- 
+#### --------------------------------------------------  
+####             Institutional Setup 
+#### --------------------------------------------------
+
 USIPI is a 501c3 non-profit organization registered in Washington, DC. We have an office in a shared space building. 
 
 #### ------------------------- Domain of Activity ----------------------------------------------------------------------------- 
