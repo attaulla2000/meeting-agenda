@@ -199,7 +199,27 @@ USIPI has currently has ambassadors in the following states
 
 #### ------------------------- 7. Who is an Ideal Volunteer/Ambassador? ----------------------
 
+1.  Good Understanding of USIPI
+2.  Good at Articulating and Public Speaking
+3.  Awareness of Indian Muslim Issues
+4.  Good Social Network
+5.  Ability to Raise Funds
+6.  Analytical Skills 
+7.  Responsible
+8.  Avaliable
+9.  Innovators/Dreamers
+
+
 #### ------------------------- 8. What can I do for USIPI? ----------------------
+
+1.  Become an Ambassador for USIPI
+2.  Build a Support Group (Online, or Local chapter)
+3.  Build a Databse of Indian Muslims (phone, email, facebook) 
+4.  Promote USIPI to your Network
+5.  Raise Funds for USIPI
+6.  Develop program outputs (short messages, blogs, articles, infrographics, research summary, newletter, brochure etc.)
+7.  Lead a Project or Program
+8.  Dreamers/Innovators
 
 #### ------------------------- 9. Marketing Model ----------------------
 
