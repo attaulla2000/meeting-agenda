@@ -39,7 +39,7 @@
 <p> . </p>
 <p> . </p>
 
-#### ------------------------ Institutional Setup ----------------------
+#### ------------------------ 1. Institutional Setup ----------------------
 #### Structure, People and Processes
 - USIPI is a 501c3 non-profit organization registered in Washington, DC. 
 - USIPI was established in 2011 through community support. 
@@ -53,7 +53,7 @@
 
 
 
-#### ------------------------- Domain of Activity ----------------------
+#### ------------------------- 2. Domain of Activity ----------------------
 - USIPI envisions all people to have equal <strong> freedom</strong>  and equal access to <strong>opportunities</strong>. 
 - USIPI's mission is to remove poverty, deprivation and inequality from society as well as promote inclusive development.
 - USIPI has focused on the core area of <strong>human development </strong> to guide its topics of interest and selection of issues to undertake.
@@ -71,6 +71,10 @@
 4. <strong> Promote Grassroots Development Models </strong>
 <p> USIPI builds and promotes grassroots development models through its action research and collaboration with civil society, NGO's and community leaders. </p>
 
+#### ------------------------- 3. Collaborations ----------------------
 
+![Image] (https://files.constantcontact.com/8b029051201/26d8f847-453c-4650-a38f-6c480fa8fb5a.jpg)
+
+<p> USIPI collaborates with Digital Empowerment Foundation. </p>
 
 
